@@ -1,0 +1,10 @@
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
+This is an example of App Bar in Android Development
